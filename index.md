@@ -1,6 +1,8 @@
 
 # Aditya 369: The Movie That Refused to Stay in Its Time
 
+![Aditya 369](Aditya369-scaled.jpg)
+
 An old man who looked uncannily like Einstein was lost in the depths of his lab, 
 where clocks of every shape and size ticked in chaotic harmony along the walls. 
 He was surrounded by bubbling chemicals, clunky old IBM monitors, a dusty compound microscope,
