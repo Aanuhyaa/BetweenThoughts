@@ -1,3 +1,5 @@
+<link rel="stylesheet" href="style.css">
+
 # Aditya 369: The Movie That Refused to Stay in Its Time
 
 An old man who looked uncannily like Einstein was lost in the depths of his lab, 
