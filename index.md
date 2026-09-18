@@ -1,4 +1,3 @@
-<link rel="stylesheet" href="style.css">
 
 # Aditya 369: The Movie That Refused to Stay in Its Time
 
