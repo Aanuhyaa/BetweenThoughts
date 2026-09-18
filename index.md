@@ -30,6 +30,8 @@ A father meeting the boy’s mother, candidly admitting that his daughter doesn�
 His logic? “They’re going to get married anyway. We might as well give our blessing.”
 The sheer charm of it all—the domesticity, the honesty, the ease. So grounded. So refreshing. And not a moment wasted.
 
+![Aditya 369](Aditya369.jpg)
+
 When we’re finally strapped in for the ride in the time machine-thanks to that schoolboy, we’re first taken 500 years into the past, to the glorious era of Sri Krishnadevaraya.
 The royal halls gleam with grandeur, and the streets are just as rich—bustling with traders,
 artisans, dancers, and poets, each going about their lives.
