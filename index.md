@@ -14,7 +14,7 @@ And his latest experiment involving a machine which travels in time is making th
 A few blocks away, an eight-year-old boy on a school visit to the Salarjang Museum saw something he wasn’t supposed to. 
 While wandering alone,accidentally left behind by his teachers,he watched, wide-eyed, a diamond being stolen right before his eyes.
 Are you intrigued?
-Then dive in for the ride. Because what started with a humming wall and a stolen diamond is about to crack open a memorable movie.
+Then, dive right into Singeetam sir’s vision. Because what started with a humming wall and a stolen diamond is about to crack open a memorable film.
 
 The titular role is the time machine Aditya 369 itself. How wonderful is that? 
 In the movie's world, it travels through both time and space.
@@ -56,5 +56,7 @@ A stolen diamond, a lingering villain—remember?
 Amidst mystery and mayhem, our hero rises once again, fights off the evil forces, and triumphs.
 What a fun film. Still relevant, still firing up the imagination of young minds—encouraging Telugu audiences to dream beyond the ordinary, even decades later.
 If there was ever a time to revisit it, it’s now. Aditya 369 isn’t just a movie. It’s a time capsule of ambition, creativity, and timeless storytelling.
+
+Thank you, Singeetam Srinivasa Rao sir, for giving us an extraordinary masterpiece, a true testament to your genius.
 
 
