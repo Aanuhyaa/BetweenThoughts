@@ -12,7 +12,7 @@ half-assembled gadgets, and the occasional puff of suspicious smoke.
 Brilliant. Eccentric. Hopelessly absent-minded. 
 And his latest experiment involving a machine which travels in time is making the very walls hum.
 A few blocks away, an eight-year-old boy on a school visit to the Salarjang Museum saw something he wasn’t supposed to. 
-While wandering alone,accidentally left behind by his teachers,he watched, wide-eyed, a diamond being stolen right before his eyes.
+While wandering alone,accidentally left behind by his teachers, he watched, wide-eyed, a diamond being stolen right before his eyes.
 Are you intrigued?
 Then, dive right into Singeetam sir’s vision. Because what started with a humming wall and a stolen diamond is about to crack open a memorable film.
 
